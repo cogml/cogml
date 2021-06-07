@@ -7,3 +7,5 @@
 💻전남대학교 IoT인공지능 융합전공
 
 📧e-mail : cogml1212@gmail.com 
+
+📷인스타그램 : @
