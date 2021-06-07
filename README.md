@@ -1,4 +1,4 @@
-### 채희의 GITHUB
+![profile](https://user-images.githubusercontent.com/55068106/120959898-ca1ec200-c795-11eb-9c28-521b228abeb6.jpg)
 
 ## ✨profile✨
 
