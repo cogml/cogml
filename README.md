@@ -1,4 +1,4 @@
-![prof](https://user-images.githubusercontent.com/55068106/120960067-0e11c700-c796-11eb-9e01-091128f7d80a.jpg)
+![githubprofile](https://user-images.githubusercontent.com/55068106/120960154-37325780-c796-11eb-97be-9ac53f35846c.jpg)
 
 ## ✨profile✨
 
