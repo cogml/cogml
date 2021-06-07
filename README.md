@@ -1,6 +1,6 @@
 ### 채희의 GITHUB
 
-###✨profile✨
+## ✨profile✨
 
 📐전남대학교 수학과
 
