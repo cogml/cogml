@@ -1,4 +1,4 @@
-![githubprofile](https://user-images.githubusercontent.com/55068106/120960154-37325780-c796-11eb-97be-9ac53f35846c.jpg)
+<img width="689" alt="myprofile" src="https://user-images.githubusercontent.com/55068106/120960341-9728fe00-c796-11eb-9a97-fa47e063bef1.png">
 
 ## ✨profile✨
 
